@@ -19,6 +19,6 @@
 *   Build confidence in collaborative development.
 
 # **H1 Screenshots**
-IMG_20260521_130826_130_
+
 IMG_20260521_130826_130_(1)_(1)_(1)_(1)[1].jpg
 
